@@ -1,0 +1,1 @@
+# finanzas-personales-icono
